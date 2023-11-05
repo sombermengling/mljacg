@@ -1,0 +1,10 @@
+梦灵姬是由一群Galgame爱好者成立的免费网站
+致力于为Galgame爱好者和ACG爱好者提供免费的游戏下载和咨询服务。
+---------------------------
+梦灵姬是一个ACG综合网站，主要设立Galgame，番剧等几个板块
+发布页：
+mljacg.yyddtj.top
+mljacg.ates.top
+ourgal.eu.org
+建议收藏，感谢您的支持
+永久地址：https://sombermengling.github.io/mljacg/
