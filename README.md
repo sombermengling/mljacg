@@ -4,7 +4,7 @@
 梦灵姬是一个ACG综合网站，主要设立Galgame，番剧等几个板块<br />
 发布页：<br />
 mljacg.yyddtj.top<br />
-mljacg.pages.dev<br />
+mljacg.bgci.xyz<br />
 ourgal.eu.org<br />
 建议收藏，感谢您的支持<br />
 永久地址：https://sombermengling.github.io/mljacg/<br />
